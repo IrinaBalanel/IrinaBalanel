@@ -7,11 +7,10 @@
 - 🎓 I am learning `javascript`, `html`, `css`, `c#` and `sql` at [Humber College](https://humber.ca)
 
 ### How to reach me:
-👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/);
+👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/)
+💕 [Instagram](https://www.linkedin.com/in/irina-balanel/)
 
-💕 [Instagram](https://www.linkedin.com/in/irina-balanel/);
-
-📍Toronto, Canada
+📍Based in Toronto, Canada
 
 
 
