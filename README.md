@@ -1,4 +1,4 @@
-![My moto]
+![My moto](my_moto.wbmp)
 # 👋 Hi, I’m Irina Balanel
 
 ## About me:
