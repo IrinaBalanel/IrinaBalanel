@@ -1,4 +1,4 @@
-
+![My moto](my_moto.png)
 # 👋 Hi, I’m Irina Balanel
 
 ## About me:
