@@ -1,3 +1,4 @@
+![My moto]
 # 👋 Hi, I’m Irina Balanel
 
 ## About me:
