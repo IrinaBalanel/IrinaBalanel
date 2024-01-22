@@ -6,8 +6,8 @@
 - 🎓 I am learning JavaScript, HTML, CSS, C# and SQL at Humber
 
 ## How to reach me:
-- 👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/);
-- 💕 [Instagram](https://www.linkedin.com/in/irina-balanel/);
+👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/);
+💕 [Instagram](https://www.linkedin.com/in/irina-balanel/);
 
 
 
