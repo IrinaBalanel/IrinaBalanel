@@ -7,6 +7,7 @@
 
 ## How to reach me:
 👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/);
+
 💕 [Instagram](https://www.linkedin.com/in/irina-balanel/);
 
 
