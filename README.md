@@ -9,8 +9,8 @@
 -	Passionate and hard-working, experienced with clients from Canada, China, South Africa, Russia, Kazakhstan
 
 ### How to reach me:
-👩‍💻 [LinkedIn](https://www.instagram.com/irenmakarova8/)
-💕 [Instagram](https://www.linkedin.com/in/irina-balanel/)
+👩‍💻 [LinkedIn](https://www.linkedin.com/in/irina-balanel/)
+💕 [Instagram](https://www.instagram.com/irenmakarova8/)
 
 📍Based in Toronto, Canada
 
